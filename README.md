@@ -2,5 +2,7 @@ ai que tedio
 
 - oi
 - oi
-![](https://tenor.com/zI8v.gif)
 
+
+![](https://media1.tenor.com/m/3PZd8dg4Sp0AAAAC/gum-playing.gif)
+@lobo-solitari-oi
